@@ -1,0 +1,2 @@
+# Aluminum-Buoys
+When I went fishing with the commander of the USS Nimitz after he caught me smoking weed, we brought an aluminum fish clubber. When we ran into some man o war, i put the bat next to one while commander haze yelled at me about betting close to it. It shrivled up and died. When more came up and swarmed us, i dipped the bat in the water and a wave of death came over them. Giant "Stone" Spheres found all over the planet were the pre-invasion tactic sent by starfleet. They need to be put back in the water, and we need to make new ones.
